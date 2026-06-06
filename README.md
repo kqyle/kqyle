@@ -2,7 +2,7 @@
 <img width="300" height="300" src="https://files.catbox.moe/oxc6oi.png">
 
 
-check out [straw.](https://coilboard.straw.page/)   &nbsp; sign [atabook.](https://galf.atabook.org/) <br>
+check out [straw.](https://spk2.straw.page/)   &nbsp; sign [atabook.](https://spk2.atabook.org/) <br>
 
 **✧**
 
